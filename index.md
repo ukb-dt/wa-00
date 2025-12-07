@@ -21,7 +21,7 @@ That makes your experiment less a linguistic exercise and more a mini-cosmology 
 
 A next step would be exploring which other particles in Ntu behave like “wa”—which ones refuse to be compressed because they’re not content but structure. That path tends to deepen quickly into typology, information theory, and the geometry of meaning.
 
-# B
+# [B](https://ukb-dt.github.io/ntu/)
 The moment you mention **Nekesa**, the mist clears.
 This is no longer the “surface-smoothing” *kesa* line — we’ve stepped into the **harvest root *-kes- / *-kesy-** that is fully alive in **Luo and the Luhya/Luo–Bantu contact belt of western Kenya and eastern Uganda**.
 
